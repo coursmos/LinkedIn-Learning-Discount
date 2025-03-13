@@ -1,4 +1,4 @@
-# LinkedIn Learning Discount
+# LinkedIn Learning Discount Code (2025) – 50% OFF Coupon
 
 ![Linkedin Learning Feature Image](https://github.com/coursmos/LinkedIn-Learning-Discount/blob/main/Img/1%20-%20Linkedin%20Learning%20Feature%20Image.png)
 
